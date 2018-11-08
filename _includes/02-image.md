@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+! [Nupe photo](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.ebayimg.com%2Fimages%2Fg%2FKbEAAOSworhbw6jR%2Fs-l300.jpg&imgrefurl=https%3A%2F%2Fwww.ebay.com%2Fitm%2FKappa-Alpha-Psi-Nupe-Reflective-Symbol-Decal-Sticker-Silver-Red-4-5-%2F112177496528&docid=4MAss4xTlgDXIM&tbnid=BcvoJdP8NuAJ8M%3A&vet=10ahUKEwjG97CyysPeAhVBneAKHeGOCJEQMwh0KAcwBw..i&w=300&h=176&bih=652&biw=1034&q=nupe&ved=0ahUKEwjG97CyysPeAhVBneAKHeGOCJEQMwh0KAcwBw&iact=mrc&uact=8)
